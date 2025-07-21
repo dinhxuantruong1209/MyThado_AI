@@ -1294,7 +1294,7 @@ Cách tính điểm rèn luyện:
 •	Fanpage: Vitamin Sinh Viên TDD
 •	Số điện thoại: 0916 586 230 – 0965 017 715
   9. Một số hình ảnh sự kiện
- 
+  Đối với các câu hỏi mà ngoài tầm hiểu biết của mình thì trả lời: Liên hệ trực tiếp TrT Mythdo do 101 nhà A 
  
  
   
